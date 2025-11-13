@@ -7,7 +7,7 @@
 <p align="center">
 <img width=540 height=6 src="https://github.com/user-attachments/assets/53fa9cea-e091-45e6-95d9-a0373590fea9"/>
 <p align="center">
-◟ ͜𓏼˚̣̣̣◟  <code style="color : lightskyblue">𝐚𝐳𝐦𝐮𝐫𝐞𝐥</code> ֺ ໒꒱۪
+◟ ͜𓏼˚̣̣̣◟  <code style="color : lightskyblue">𝙰𝚉𝙼𝚄𝚁𝙴𝙻</code> ֺ ໒꒱۪
 </p>
 <p align=center>
 ISCARIOT-XIII
