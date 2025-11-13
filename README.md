@@ -10,13 +10,13 @@
 ◟ ͜𓏼˚̣̣̣◟ <code style="color : lightskyblue">𝙰𝚉𝙼𝚄𝚁𝙴𝙻</code> ֺ ໒꒱۪
 </p>
 <p align=center>
-ISCARIOT-XIII
+𝕀𝕊ℂ𝔸ℝ𝕀𝕆𝕋-𝕏𝕀𝕀𝕀
 </p>
 <p align=center>
-『- she ◞𓈒  ݂ ✟ her 𓏲 ˚¦ ͜͝ | ͜͝ . 
+『 she ◞𓈒  ݂ ✟ her 𓏲 ˚¦ ͜͝ | ͜͝ . 
 </p>
 <p align=center>
-˚̣̣꒰ ͜͝ ݃ ݁ ͜͝ 𓐇 ͡  chi̲n̲a̲ ⁠ֺ  🌀 2.24 -』
+˚̣̣꒰ ͜͝ ݃ ݁ ͜͝ 𓐇 ͡  chi̲n̲a̲ ⁠ֺ  🌀 2.24 』
 </p>
 
 <p align="center">
