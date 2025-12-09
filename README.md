@@ -1,7 +1,6 @@
 <p align=center>
 <img width=540 height=6 src="https://github.com/user-attachments/assets/53fa9cea-e091-45e6-95d9-a0373590fea9"/>
 </p>
-
 <p align=center>
 <img src="https://files.catbox.moe/rogzh2.gif"/> 
 </p>
