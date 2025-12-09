@@ -3,7 +3,7 @@
 </p>
 
 <p align=center>
-<img src="https://files.catbox.moe/px5h81.gif"/> 
+<img src="https://files.catbox.moe/rogzh2.gif"/> 
 </p>
 <p align='center'> 
   ゛<code style="color : lightskyblue">𝑨𝒔𝒉𝒆𝒔 𝑡𝑜 𝑎𝑠ℎ𝑒𝑠, 𝐷𝑢𝑠𝑡 𝑡𝑜 𝒅𝒖𝒔𝒕.</code> 〃
