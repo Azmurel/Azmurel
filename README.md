@@ -29,7 +29,7 @@ she ◞𓈒  ݂ ✟ her 𓏲 ˚¦ ͜͝ | ͜͝ .
   ゛<code style="color : lightskyblue">𝑊𝑒 𝑎𝑟𝑒 𝑛𝑜𝑡ℎ𝑖𝑛𝑔, 𝑏𝑢𝑡 𝑑𝑢𝑠𝑡 𝑎𝑛𝑑 𝑡𝑜 𝑑𝑢𝑠𝑡 𝑤𝑒 𝑠ℎ𝑎𝑙𝑙 𝑟𝑒𝑡𝑢𝑟𝑛. 𝐴𝑚𝑒𝑛.</code> 〃
   <br>
   <br>
-<img width=500 height=281 src="https://files.catbox.moe/fn3yk7.gif"/>
+<img width=500 height=281 src="https://files.catbox.moe/wn2627.gif"/>
 <p align="center">
   <p align="center">
 <img width=540 height=6 src="https://github.com/user-attachments/assets/53fa9cea-e091-45e6-95d9-a0373590fea9"/>
