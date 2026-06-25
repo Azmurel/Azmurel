@@ -1,4 +1,4 @@
-<img width="500" align="right" alt="Image" src="https://github.com/user-attachments/assets/f3fbedf5-02d0-4272-8acf-5d99ff8ce398" style="margin-right: 20px; margin-bottom: 10px;" />
+<img width="500" align="right" alt="Image" src="https://github.com/user-attachments/assets/f3fbedf5-02d0-4272-8acf-5d99ff8ce398" style="margin-right: 10px; margin-bottom: 10px;" />
 
 <br /><br />
 <img src="https://komarev.com/ghpvc/?username=johndoe&label=࣪%20ִֶָ'†.&color=164883&v=4" />
