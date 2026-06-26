@@ -14,3 +14,9 @@
 <a href="https://www.tumblr.com/42murel">〔tumblr〕</a>
 
 <br clear="left" />
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31taxv4byk5zzzexlqolpyowvrju&cover_image=true&theme=compact&show_offline=true&background_color=000000&interchange=false&profanity=false&hide_remaster=false">
+  </a>
+</p>
