@@ -9,9 +9,9 @@
 “ 𝑊𝑒 𝑎𝑟𝑒 𝑛𝑜𝑡ℎ𝑖𝑛𝑔, 𝑏𝑢𝑡 𝑑𝑢𝑠𝑡 𝑎𝑛𝑑 𝑡𝑜 𝑑𝑢𝑠𝑡 𝑤𝑒 𝑠ℎ𝑎𝑙𝑙 𝑟𝑒𝑡𝑢𝑟𝑛. 𝐴𝑚𝑒𝑛 ”
 
 <br /><br />
-<a href="https://42md0er.atabook.org">〔atabook〕</a> ✟ 
 <a href="https://42mur3l.straw.page">〔strawpage〕</a> ✟ 
-<a href="https://www.tumblr.com/42murel">〔tumblr〕</a>
+<a href="https://42md0er.atabook.org">〔atabook〕</a> ✟ 
+
 
 <br clear="left" />
 
