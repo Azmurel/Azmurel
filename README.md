@@ -4,13 +4,13 @@
 
 
 <img src="https://komarev.com/ghpvc/?username=johndoe&label=࣪%20ִֶָ'†.&color=164883&v=4" />
-<br /><br />
+<br />
 <br />
 “ 𝑨𝒔𝒉𝒆𝒔 𝑡𝑜 𝑎𝑠ℎes, 𝐷𝑢𝑠𝑡 𝑡𝑜 𝒅𝒖𝒔𝒕. ”
 <br /><br />
 “ 𝑊𝑒 𝑎𝑟𝑒 𝑛𝑜𝑡ℎ𝑖𝑛𝑔, 𝑏𝑢𝑡 𝑑𝑢𝑠𝑡 𝑎𝑛𝑑 𝑡𝑜 𝑑𝑢𝑠𝑡 𝑤𝑒 𝑠ℎ𝑎𝑙𝑙 𝑟𝑒𝑡𝑢𝑟𝑛. 𝐴𝑚𝑒𝑛 ”
 
-<br /><br />
+<br /><br /><br />
 <div style="margin-top: 20px;">
   <a href="https://42md0er.atabook.org">〔atabook〕</a> ✟ 
   <a href="https://42mur3l.straw.page">〔strawpage〕</a> ✟ 
